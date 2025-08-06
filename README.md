@@ -99,7 +99,7 @@ Ce rapport contient :
 Étudiant diplômé en Management des Systèmes d'Information  
 📍 République Démocratique du Congo  
 📧 Email : 19rk471@esisalama.org
-🔗 LinkedIn : (https://www.linkedin.com/in/lucien-ramazani-kabobo)
+🔗 LinkedIn : (https://www.linkedin.com/feed/update/urn:li:activity:7358977432059580416/)
 
 ---
 
